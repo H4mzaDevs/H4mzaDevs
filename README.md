@@ -2,7 +2,7 @@
 
 - 👨‍🎓 I'm Currently Student .
 - 💻 I Really Love Coding 😂 
-- 🎨 I'm Also a Photoshop
+- 🎨 I'm Also a Photoshop Designer
 - 🥅 2020 Goals: Learn more Programing Languages , Launching My First Website 🚀
 - ⚡ Fun fact: I'm Not A Facebook Hacker Pls. 📌
 
